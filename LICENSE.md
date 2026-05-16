@@ -1,4 +1,4 @@
-# 
+# Get the ultimate QuickBooks for PC | QuickBooks for Windows integration with smart QuickBooks for PC | QuickBooks for Windows Integration | invoicing + multi-currency-support.
 
 
 
